@@ -16,7 +16,6 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/s-gopala-krishnan-345419297?trk=contact-info](https://www.linkedin.com/in/s-gopala-krishnan-345419297?trk=contact-info)
 
-- ⚡ Fun fact **I think iam funny 😁**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
