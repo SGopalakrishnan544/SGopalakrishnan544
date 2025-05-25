@@ -10,7 +10,7 @@
 
 - 🌱 I’m currently learning **Bachelor of computer applications**
 
-- 👨‍💻 All of my projects are available at [https://www.linkedin.com/in/s-gopala-krishnan-345419297?trk=contact-info](https://www.linkedin.com/in/s-gopala-krishnan-345419297?trk=contact-info)
+- 👨‍💻 All of my projects are available at [https://www.linkedin.com/in/s-gopala-krishnan-345419297](https://www.linkedin.com/in/s-gopala-krishnan-345419297)
 
 - 📫 How to reach me **sgopalakrishnansudha05@gmail.com**
 
